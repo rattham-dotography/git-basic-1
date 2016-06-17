@@ -10,3 +10,8 @@ It's me .. ningchan
 
 mic คับasdfasdfasdfasafasf
 
+write git command -------(*_*) pae
+
+T_T
+
+sawasdee kub eieieieieiei
