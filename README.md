@@ -7,11 +7,15 @@
 
 It's me .. ningchan
 
-
 mic คับasdfasdfasdfasafasf
 
 write git command -------(*_*) pae
 
 T_T
 
-sawasdee kub eieieieieiei
+nantaphong
+
+xxx
+Hi! my name is preecha sattabut.
+To day is a first day for i lean git.
+
