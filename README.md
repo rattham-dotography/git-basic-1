@@ -8,3 +8,5 @@
 
 mic คับasdfasdfasdfasafasf
 
+write git command -------(*_*) pae
+
